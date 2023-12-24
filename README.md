@@ -23,5 +23,5 @@ O_my stands as a strategic partner in the hospitality industry, merging AI with 
 ### 📈 Make Informed Decisions
 With O_my, transform your approach to customer management and experience the power of AI in predicting and adapting to the ebb and flow of customer presence.
 
-⭐ Interested in learning more or trying O_my for your business? Feel free to reach out to us!
+⭐ Interested in learning more or trying O_my for your business? Feel free to reach out to me!
 
